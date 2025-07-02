@@ -38,7 +38,7 @@ Join a thriving community with dedicated channels for discussions, goal setting,
 
 ---
 
-[Join Potion Discord Now to Elevate Your Trading Experience](https://kelexbawz.com/potion-alpha)
+[Join Potion Discord Now to Elevate Your Trading Experience](https://whop.com/potion-alpha?a=kelechienwere1234)
 
 ---
 
@@ -62,7 +62,7 @@ Each tier provides varying levels of notifications and customization options.
 
 ---
 
-[Join Potion Discord Now to Access Exclusive Tools and Insights](https://kelexbawz.com/potion-alpha)
+[Join Potion Discord Now to Access Exclusive Tools and Insights](https://whop.com/potion-alpha?a=kelechienwere1234)
 
 ---
 
@@ -86,7 +86,7 @@ Potion Discord is tailored for:
 
 ---
 
-[Join Potion Discord Now to Transform Your Trading Journey](https://kelexbawz.com/potion-alpha)
+[Join Potion Discord Now to Transform Your Trading Journey](https://whop.com/potion-alpha?a=kelechienwere1234)
 
 ---
 
@@ -118,7 +118,7 @@ While other platforms may offer similar features, Potion Discord's blend of educ
 
 ---
 
-[Join Potion Discord Now to Stay Ahead in the Crypto Market](https://kelexbawz.com/potion-alpha)
+[Join Potion Discord Now to Stay Ahead in the Crypto Market](https://whop.com/potion-alpha?a=kelechienwere1234)
 
 ---
 
@@ -137,6 +137,6 @@ As with any platform, individual experiences may differ based on personal expect
 
 Potion Discord offers a comprehensive platform for crypto traders seeking education, tools, and community engagement. While the pricing may be a consideration, the value derived from its offerings can justify the investment for many. If you're committed to enhancing your trading skills and participating in an active community, Potion Discord is worth exploring.
 
-[Join Potion Discord Now to Elevate Your Crypto Trading](https://kelexbawz.com/potion-alpha)
+[Join Potion Discord Now to Elevate Your Crypto Trading](https://whop.com/potion-alpha?a=kelechienwere1234)
 
 ---
